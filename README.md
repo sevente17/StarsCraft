@@ -31,8 +31,10 @@ Cǐnchin Jîdê, Sēnchǐn chin khǒe Lîshǐ Fāonseq
 ## 联系方式 Contact Information Lîshǐ Fāonseq
 ### QQ——1696723279
 ### Discord——stars.8989
-### Line——fanxindiandian5258
+### LINE——fanxindiandian5258
 ### E-mail——stars8989@126.com
+### 交流群  Discussion Ciāu Liêu Jiûn : 149382785（QQ）；[Discord](https://discord.gg/RasRmwySXh)
+
 
 
 
