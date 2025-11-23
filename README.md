@@ -4,7 +4,7 @@
 
 ### ————————————————————————————————————————
 ## Minecraft 服务器  Minecraft Server Minecraft Veq wû chǐ
-### [mc.starscraft.icu](mc.starscraft.icu)
+# IP Address:  mc.starscraft.icu
 ### 版本要求  Required Version Pĕpen Iāujiêu
 ### Java Edition 1.12.X~1.21.8
 ### 交流群  Discussion Ciāu Liêu Jiûn : 795370525（QQ）
