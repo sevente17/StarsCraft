@@ -1,4 +1,4 @@
-#StarsCraft
+# StarsCraft
 # 这是由`Markdown`书写的页面
 # This is the page written in `Markdown`
 # Diq zŷ iq phī yôn `Markdown` sǔ shiă keq yiqmì
